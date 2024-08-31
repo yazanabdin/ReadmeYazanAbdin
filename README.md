@@ -24,5 +24,5 @@ Increased sales by 23% in my role as Sales Manager through leadership and custom
 📫 Let's Connect
 Email: yazanabdin350@gmail.com
 LinkedIn: Yazan Abdin
-Feel free to explore my repositories and connect with me for collaborations or questions!
+Feel free to explore or connect with me!!!
 
